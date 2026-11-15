@@ -1,0 +1,1 @@
+# isletme-icin-iktisadi-uygulama
